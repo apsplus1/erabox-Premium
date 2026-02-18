@@ -1,4 +1,5 @@
-# Terabox Premium APK V4.13 - Mod APK with Premium Features Unlocked
+
+.# Terabox Premium APK V4.13 - Mod APK with Premium Features Unlocked
 
 | ![Terabox](https://github.com/user-attachments/assets/f52e4a06-148f-48d0-8855-3431b27698fa) | **Download Now** |
 |:-------------------------------------------------:|-----------------------|
@@ -6,7 +7,7 @@
 
 ## Download Links
 
-1. **Activator APK (Must Install First):** [Download Activator](https://www.mediafire.com/file/xhdj653l01c44v3/terabox+pro+active_en_sign.apk/file)  
+1. **Activator APK (Must Install First):** [Download Activator](https://www.mediafire.com/file/fn0spzr8o6lh5qk/Terabox+pro+active_sign.apk/file)  
 2. **Terabox Premium APK (Version 4.13):** [Download Terabox](https://www.mediafire.com/file/0h58f7j1vqnok4p/TeraBox_Premium_v4.13.apk/file)  
 
 ---
